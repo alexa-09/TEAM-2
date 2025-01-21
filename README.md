@@ -18,5 +18,5 @@ Blaze- Will do anything
 ![Storyboard](https://github.com/9637642/TEAM-2/blob/main/Assests/1.jpg?raw=true)
 ![Storyboard info](https://github.com/9637642/TEAM-2/blob/main/Assests/2.jpg?raw=true)
 
-![News Schedule layout idea]()
+![News Schedule layout idea](https://github.com/9637642/TEAM-2/blob/main/Assests/productPlan.png?raw=true)
 
