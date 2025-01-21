@@ -1,17 +1,17 @@
 # TEAM-2
 
 ## TEAM MEMBERS
-jack- 
+jack- Co-director, editing
 
-cole-
+Cole- Lighting Technician
 
-lincoln-
+Lincoln- Camera Operator
 
-Alice-
+Alice- Co-director
 
-Ollie-
+Ollie- Graphics Operator
 
-Blaze-
+Blaze- Will do anything
 
 ## STORYBOARD
 
