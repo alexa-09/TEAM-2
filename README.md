@@ -1,4 +1,4 @@
-# TEAM-2
+# Eagle Nest News Team-2
 
 ## TEAM MEMBERS
 jack- Co-director, editing
