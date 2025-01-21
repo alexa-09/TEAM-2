@@ -1,6 +1,4 @@
 # TEAM-2
 
-##TEAM MEMBERS
-
 ## STORYBOARD
 
