@@ -1,11 +1,16 @@
 # TEAM-2
 
 ## TEAM MEMBERS
-jack-
+jack- 
+
 cole-
+
 lincoln-
+
 Alice-
+
 Ollie-
+
 Blaze-
 
 ## STORYBOARD
