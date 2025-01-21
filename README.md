@@ -7,7 +7,7 @@ Cole- Lighting Technician
 
 Lincoln- Camera Operator
 
-Alice- Co-director
+Alice- Co-director, news reporting and/or hosting
 
 Ollie- Graphics Operator
 
