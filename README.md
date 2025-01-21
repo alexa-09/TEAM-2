@@ -1,17 +1,17 @@
 # Eagle Nest News Team-2
 
 ## TEAM MEMBERS
-jack- Co-director, editing
+* jack- Co-director, editing
 
-Cole- Lighting Technician
+* Cole- Lighting Technician
 
-Lincoln- Camera Operator
+* Lincoln- Camera Operator
 
-Alice- Co-director, news reporting and/or hosting
+* Alice- Co-director, news reporting and/or hosting
 
-Ollie- Graphics Operator
+* Ollie- Graphics Operator
 
-Blaze- Will do anything
+* Blaze- Rover
 
 ## STORYBOARD
 
