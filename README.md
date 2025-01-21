@@ -9,7 +9,7 @@
 
 * Alice- Co-director, news reporting and/or hosting
 
-* Ollie- Graphics Operator
+* Oli- Graphics Operator, and actor(when needed)
 
 * Blaze- Rover
 
@@ -19,4 +19,5 @@
 ![Storyboard info](https://github.com/9637642/TEAM-2/blob/main/Assests/2.jpg?raw=true)
 
 ![News Schedule layout idea](https://github.com/9637642/TEAM-2/blob/main/Assests/News%20Schedule%20(layout%20idea).png?raw=true)
+
 
