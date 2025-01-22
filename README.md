@@ -1,7 +1,7 @@
 # Eagle Nest News Team-2
 
 ## TEAM MEMBERS
-* jack- Co-director, editing
+* Jack- Co-director, editing
 
 * Cole- Lighting Technician
 
