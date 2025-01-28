@@ -29,3 +29,9 @@ https://github.com/user-attachments/assets/10699019-1462-45ff-a648-d0778e8c264d
 
 ![Alice's News intro](https://drive.google.com/file/d/1mRDbl7ZkQN5Iv_4tfXoE28glmp1qAhHR/view?usp=sharing)
 
+Cole's Intro 
+
+
+
+https://github.com/user-attachments/assets/bd51dd5e-91f7-4738-beba-19d8a1a4b2b1
+
