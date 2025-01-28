@@ -26,7 +26,7 @@ Oli's News Intro
 
 https://github.com/user-attachments/assets/10699019-1462-45ff-a648-d0778e8c264d)
 
-![Oli's Intro](https://drive.google.com/file/d/1Saue9lchP0di5gwxARQIswcgrw3elcLZ/view?usp=sharing)
+https://drive.google.com/file/d/1Saue9lchP0di5gwxARQIswcgrw3elcLZ/view?usp=sharing)
 
 ![Alice's News intro](https://drive.google.com/file/d/1mRDbl7ZkQN5Iv_4tfXoE28glmp1qAhHR/view?usp=sharing)
 
