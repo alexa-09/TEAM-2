@@ -24,7 +24,6 @@ News Intros
 
 Oli's News Intro
 
-
 https://drive.google.com/file/d/1Saue9lchP0di5gwxARQIswcgrw3elcLZ/view?usp=sharing)
 
 ![Alice's News intro](https://drive.google.com/file/d/1mRDbl7ZkQN5Iv_4tfXoE28glmp1qAhHR/view?usp=sharing)
