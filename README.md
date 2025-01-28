@@ -1,4 +1,4 @@
-# Eagle Nest News Team-2
+# Eagle Nest News Team
 
 ## TEAM MEMBERS
 * Jack- Co-director, editing
@@ -9,7 +9,7 @@
 
 * Alice- Co-director, news reporting and/or hosting
 
-* Oli- Graphics Operator, and actor(when needed)
+* Oli- Graphics Operator
 
 * Blaze- Rover
 
@@ -20,4 +20,4 @@
 
 ![News Schedule layout idea](https://github.com/9637642/TEAM-2/blob/main/Assests/News%20Schedule%20(layout%20idea).png?raw=true)
 
-
+News Intros
