@@ -24,7 +24,6 @@ News Intros
 
 Oli's News Intro
 
-https://github.com/user-attachments/assets/10699019-1462-45ff-a648-d0778e8c264d)
 
 https://drive.google.com/file/d/1Saue9lchP0di5gwxARQIswcgrw3elcLZ/view?usp=sharing)
 
