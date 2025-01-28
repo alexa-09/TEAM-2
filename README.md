@@ -21,3 +21,4 @@
 ![News Schedule layout idea](https://github.com/9637642/TEAM-2/blob/main/Assests/News%20Schedule%20(layout%20idea).png?raw=true)
 
 News Intros
+![Oli's News Intro](https://www.canva.com/design/DAGc2c9vZ0k/ik8zBX2xWGjxPHDVeJausg/edit?utm_content=DAGc2c9vZ0k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton?raw=true)
