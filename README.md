@@ -35,6 +35,7 @@ Cole's Intro
 
 https://github.com/user-attachments/assets/bd51dd5e-91f7-4738-beba-19d8a1a4b2b1
 
-Blaze's Introm
+Blaze's Intro
 
-https://github.com/9637642/TEAM-2/blob/main/Assests/Black%20and%20Pink%20Minimalist%20Welcome%20To%20My%20Channel%20YouTube%20Video-2.mp4
+https://github.com/user-attachments/assets/60dc6882-c305-4c96-a3aa-292be30f76a2
+
