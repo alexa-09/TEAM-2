@@ -20,9 +20,8 @@
 
 ![News Schedule layout idea](https://github.com/9637642/TEAM-2/blob/main/Assests/News%20Schedule%20(layout%20idea).png?raw=true)
 
-News Intros
-![Oli's News Intro]
-
+News Intros-
+Oli's News Intro
 https://github.com/user-attachments/assets/10699019-1462-45ff-a648-d0778e8c264d
 
 
