@@ -22,9 +22,9 @@
 
 News Intros
 
-Oli's News Intro
 
-https://drive.google.com/file/d/1Saue9lchP0di5gwxARQIswcgrw3elcLZ/view?usp=sharing)
+[Oli's Intro](https://www.canva.com/design/DAGc2c9vZ0k/ik8zBX2xWGjxPHDVeJausg/edit?utm_content=DAGc2c9vZ0k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
 
 ![Alice's News intro](https://drive.google.com/file/d/1mRDbl7ZkQN5Iv_4tfXoE28glmp1qAhHR/view?usp=sharing)
 
