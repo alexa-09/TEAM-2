@@ -26,7 +26,7 @@ News Intros
 [Oli's Intro](https://www.canva.com/design/DAGc2c9vZ0k/ik8zBX2xWGjxPHDVeJausg/edit?utm_content=DAGc2c9vZ0k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 
-![Alice's News intro](https://drive.google.com/file/d/1mRDbl7ZkQN5Iv_4tfXoE28glmp1qAhHR/view?usp=sharing)
+![Alice's News intro](https://www.canva.com/design/DAGdCTff10k/mX5HGV1305shfMQxmQ5hyQ/edit?utm_content=DAGdCTff10k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 Cole's Intro 
 
