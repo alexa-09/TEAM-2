@@ -28,13 +28,9 @@ News Intros
 
 [Alice's News intro](https://www.canva.com/design/DAGdCTff10k/mX5HGV1305shfMQxmQ5hyQ/edit?utm_content=DAGdCTff10k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
-Cole's Intro 
+[Cole intro](https://github.com/user-attachments/assets/bd51dd5e-91f7-4738-beba-19d8a1a4b2b1)
 
-https://github.com/user-attachments/assets/bd51dd5e-91f7-4738-beba-19d8a1a4b2b1
-
-Blaze's Intro
-
-https://github.com/user-attachments/assets/60dc6882-c305-4c96-a3aa-292be30f76a2
+[Blaze intro](https://github.com/user-attachments/assets/60dc6882-c305-4c96-a3aa-292be30f76a2)
 
 [jack's exit](https://drive.google.com/file/d/1KqyYf3HWMRG-IGFR6oHsW7C4W7lcqjmq/view?usp=sharing)
 
