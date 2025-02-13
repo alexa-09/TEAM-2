@@ -36,3 +36,5 @@ News Intros
 
 [Lincoln's exit](https://drive.google.com/file/d/1GCxUUoF9nTwgXOKrcO02nlf9BZgRL2nD/view?usp=sharing)
 
+[Oli's Exit](https://drive.google.com/file/d/1Y2YfKCRNrjDEAH8qavAMYntaYaSW-pcp/view?usp=sharing)
+
