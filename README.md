@@ -37,4 +37,7 @@ https://github.com/user-attachments/assets/bd51dd5e-91f7-4738-beba-19d8a1a4b2b1
 Blaze's Intro
 
 https://github.com/user-attachments/assets/60dc6882-c305-4c96-a3aa-292be30f76a2
+Jack Exit
+
+![Jack Exit](https://drive.google.com/file/d/1KqyYf3HWMRG-IGFR6oHsW7C4W7lcqjmq/view?usp=sharing)
 
