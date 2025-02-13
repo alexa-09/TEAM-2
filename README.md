@@ -47,4 +47,4 @@ News Intros
 
 [Balze exit](https://drive.google.com/file/d/1lBvQp1TJMoXwN2YcBY95akhCvzf1czcP/view?usp=drive_web)
 
-[Leah Exit](https://drive.google.com/file/d/1zihSMATADLFu4N5HKS6qCNOldBjh3zIr/view?usp=gmail)
+[Leah Exit](https://drive.google.com/file/d/1zihSMATADLFu4N5HKS6qCNOldBjh3zIr/view?usp=sharing)
