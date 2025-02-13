@@ -45,3 +45,5 @@ News Intros
 
 [Cole's Exit](https://drive.google.com/file/d/13a-WoL8DErZgfmtaCuloyJYLtiZRrwr7/view?usp=sharing)
 
+[Balze exit](https://drive.google.com/file/d/1lBvQp1TJMoXwN2YcBY95akhCvzf1czcP/view?usp=drive_web)
+
