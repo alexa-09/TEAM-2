@@ -22,6 +22,8 @@
 
 News Intros
 
+[Lincoln's Intro](https://drive.google.com/file/d/1tW8SCLG61TsXtlgNlBIR5bZqEYyoDPRi/view?usp=sharing)
+
 
 [Oli's Intro](https://www.canva.com/design/DAGc2c9vZ0k/ik8zBX2xWGjxPHDVeJausg/edit?utm_content=DAGc2c9vZ0k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
