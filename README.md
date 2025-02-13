@@ -43,3 +43,5 @@ News Intros
 
 [Oli's Exit](https://drive.google.com/file/d/1Y2YfKCRNrjDEAH8qavAMYntaYaSW-pcp/view?usp=sharing)
 
+[Cole's Exit](https://drive.google.com/file/d/13a-WoL8DErZgfmtaCuloyJYLtiZRrwr7/view?usp=sharing)
+
