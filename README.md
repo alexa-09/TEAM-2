@@ -35,6 +35,8 @@ News Intros
 
 [Blaze intro](https://github.com/user-attachments/assets/60dc6882-c305-4c96-a3aa-292be30f76a2)
 
+[ALICE NEWS](https://drive.google.com/file/d/1LlhwWMRIDdKMNEQ_-zvq2k1AcoHKg6ZC/view?usp=sharing)
+
 [jack's exit](https://drive.google.com/file/d/1KqyYf3HWMRG-IGFR6oHsW7C4W7lcqjmq/view?usp=sharing)
 
 [Lincoln's exit](https://drive.google.com/file/d/1GCxUUoF9nTwgXOKrcO02nlf9BZgRL2nD/view?usp=sharing)
